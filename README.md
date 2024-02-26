@@ -22,14 +22,10 @@ No Recoil File Software (Not a Macro which is Detected) works for ALL GAMES and 
 </h2>
 
 
-https://youtu.be/Wb-5UqI2XK8
-
-https://youtu.be/66RGd2Fa-IE
-
-https://youtu.be/b96gAJefihI
-
+➡️ Why Undetected: https://youtu.be/b96gAJefihI
+➡️ No Recoil Software Intro : https://youtu.be/Wb-5UqI2XK8
 ➡️ No Recoil Software Settings Explained: https://youtu.be/fRPYkyVnmWk
-
+➡️ How to get Software: https://youtu.be/66RGd2Fa-IE
 
 
 
