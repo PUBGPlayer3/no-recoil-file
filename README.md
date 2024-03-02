@@ -28,6 +28,13 @@ No Recoil File Software (Not a Macro which is Detected) works for ALL GAMES and 
 ➡️ No Recoil Software Settings Explained: https://youtu.be/fRPYkyVnmWk<br>
 ➡️ How to get Software: https://youtu.be/66RGd2Fa-IE<br>
 
+<h2>YouTube</h2>
+https://www.youtube.com/@little_edge
+<br>
+<h2>Discord</h2>
+https://discord.gg/nm2kk22kg6
+<h4>Join our Discord and Message in #get-recoil-software channel</h4>
+
 
 https://github.com/PUBGPlayer3/no-recoil-file/assets/159410511/6fac7ab8-e3ca-466c-af4f-2c46c9395ca6
 
