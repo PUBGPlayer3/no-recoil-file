@@ -1,5 +1,4 @@
 
-https://github.com/PUBGPlayer3/no-recoil-file/assets/159410511/f7cb13b2-4593-4ebb-b9c2-2e9b7e121348
 <h1 align="center">
   <br>
   No Recoil File
